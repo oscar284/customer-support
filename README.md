@@ -1,6 +1,6 @@
 # 📞 Ways to Contact Coinbase Support – Coinbase Helpline Number
 
-Are you having trouble with your Coinbase account? Maybe your funds are stuck, your password won’t reset, or you just don’t know how to talk to a real person. Don’t worry—this guide is here to help. We’ll show you all the ways to contact Coinbase support, including the **Coinbase helpline number (801-341-9748)**.
+Are you having trouble with your Coinbase account? Maybe your funds are stuck, your password won’t reset, or you just don’t know how to talk to a real person. Don’t worry—this guide is here to help. We’ll show you all the ways to contact Coinbase support, including the **Coinbase helpline number [801-341-9748](tel:8013419748)**.
 
 ---
 
